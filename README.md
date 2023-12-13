@@ -1,1 +1,1 @@
-My name is Christian Luna and here I have uploaded all my achievements.
+My name is Christian Luna,  I have uploaded some of the skills I have for which a certification was issued.
